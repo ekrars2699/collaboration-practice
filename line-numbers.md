@@ -6,7 +6,7 @@ I was here 1
 #### 6
 Hello Everyone
 #### 8
-#### 9 GitHub is really good
+#### 9 GitHub is really awesome
 #### 10
 #### 11
 #### 12
